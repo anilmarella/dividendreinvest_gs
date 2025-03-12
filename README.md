@@ -1,0 +1,1 @@
+# dividendreinvest_gs
